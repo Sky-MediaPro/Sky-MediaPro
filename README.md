@@ -1,1 +1,1 @@
-Https://Sky-MediaPro.github.io/Sky-MediaPro
+Https://sky-mediapro.github.io/sky-mediapro
